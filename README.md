@@ -8,6 +8,6 @@
 > ### In the end, I dream to be able to live from my passions, with personal projects where I could apply the skills and knowledge I would have gathered to materialize all the ideas my creativity as think of over the years.<br>
 
 
-## [See my CV here !](https://drive.google.com/file/d/1xl6ud6772Qjd-29E0ZnWBf-sjwEZwJzF/view?usp=sharing)
+## [See my CV here !](https://drive.google.com/file/d/1ju0GY3JKlERWDbA1zdkriHUNhIxBmu6B/view?usp=sharing)
 
 
